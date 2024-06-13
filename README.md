@@ -1,1 +1,1 @@
-Just my vencord setting for me and anyone ellse who wants them
+Just my vencord setting for me and anyone else who wants them
